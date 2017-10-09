@@ -3,7 +3,3 @@ ijhih
 hubb
 tryin
 hi
-'
-
-
-;[lp
